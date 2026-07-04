@@ -1,1 +1,0 @@
-# stegora-privacy-policy
